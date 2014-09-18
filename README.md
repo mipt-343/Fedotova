@@ -1,3 +1,3 @@
-Fedotova
+Fedotova Tanya, 343 MIPT
 ========
-Lots of programs!!
+3 semester
